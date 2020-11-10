@@ -1,3 +1,2 @@
 # hello-world
-Just a repository of me helloing the world
-And seeing if I can learn as fast as I need to before I get old
+I'm in dire need of a break. I have been running around in circles trying to find where food go land but e dey do me like say this hunger go endure for at least one year. So I wan use the year blow. Na code I wan use blow. Sho get? 
